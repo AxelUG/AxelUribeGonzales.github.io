@@ -10,8 +10,12 @@ Español e Inglés (Nato)
 
 ### Actividades Recreativas
 Leer
+
 Analizar y arreglar celulares
+
 Jardineria
+
 Escribir
+
 Practicar deporte (Futbol Soccer y pesas)
 
