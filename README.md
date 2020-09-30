@@ -4,6 +4,7 @@
 ### Estudios
 Estudiante del 4to cuatrimestre de la Universidad Politécnica de Querétaro
 
+
 Tecnico en Procesos de Gestion Administrativa
 
 ### Idiomas 
